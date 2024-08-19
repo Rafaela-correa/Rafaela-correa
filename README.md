@@ -10,4 +10,4 @@ Meu nome é Rafaela Corrêa
 
 00001124224749sp@al.educacao.sp.gov.br
 
-![](https://media1.tenor.com/m/-m7fJmiSZekAAAAd/dancinha-comemorando.gif)
+![pa-ti-bb](https://github.com/user-attachments/assets/da83a2a2-72e0-4686-89fe-588a191b729e)
